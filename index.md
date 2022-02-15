@@ -3,50 +3,48 @@
 ![alt](https://via.placeholder.com/90x90.png)
 
 
-
-
-### Manufacturing & Ecommerce
+## Manufacturing & Ecommerce
 ![alt](https://via.placeholder.com/90x90.png)
 
-### Real Estate
+## Real Estate
 ![alt](https://via.placeholder.com/90x90.png)
 
-### Medical
+## Medical
 ![alt](https://via.placeholder.com/90x90.png)
 
-### Agriculture
+## Agriculture
 ![alt](https://via.placeholder.com/90x90.png)
 
 
 
-# RECENT PROJECTS
+## RECENT PROJECTS
 
-Bangor, MA
+### Bangor, MA
 ![alt](https://via.placeholder.com/220x220.png)
 30,000 Sqft
 
 
-Bangor, MA
+### Bangor, MA
 ![alt](https://via.placeholder.com/220x220.png)
 16,000 sqft
 
 
-Bangor, MA
+### Bangor, MA
 ![alt](https://via.placeholder.com/220x220.png)
 10,000 sqft
 
 
-Bangor, MA
+### Bangor, MA
 ![alt](https://via.placeholder.com/220x220.png)
 80,000 sqft
 
 
-Nome, AK
+### Nome, AK
 ![alt](https://via.placeholder.com/220x220.png)
 75,000 sqft
 
 
-Bangor, MA
+### Bangor, MA
 ![alt](https://via.placeholder.com/220x220.png)
 80,000 sqft
 
