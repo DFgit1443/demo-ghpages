@@ -1,3 +1,4 @@
+	
 # INVEST BRIUHEM APPLIES THE VALUE-ADDED INVESTMENT APPROACH. OUR INTEGRATED TEAMS LEVERAGE VERTICAL EXPERTISE AND PARTNER WITH MANAGEMENT TEAMS TO ACCELERATE GROWTH.
 ![alt](https://via.placeholder.com/90x90.png)
 
@@ -52,12 +53,12 @@ Bangor, MA
 
 # VIDEOS
 
-![alt](https://via.placeholder.com/1920x11080.png)
+![alt](https://via.placeholder.com/1920x1080.png)
 
-![alt](https://via.placeholder.com/1920x11080.png)
+![alt](https://via.placeholder.com/1920x1080.png)
 
-![alt](https://via.placeholder.com/1920x11080.png)
+![alt](https://via.placeholder.com/1920x1080.png)
 
-![alt](https://via.placeholder.com/1920x11080.png)
+![alt](https://via.placeholder.com/1920x1080.png)
 
 
