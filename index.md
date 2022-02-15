@@ -1,52 +1,54 @@
-	
+![alt](https://via.placeholder.com/1920x1080.png)	
 # INVEST BRIUHEM APPLIES THE VALUE-ADDED INVESTMENT APPROACH. OUR INTEGRATED TEAMS LEVERAGE VERTICAL EXPERTISE AND PARTNER WITH MANAGEMENT TEAMS TO ACCELERATE GROWTH.
-![alt](https://via.placeholder.com/90x90.png)
 
 
 ## Manufacturing & Ecommerce
+We pride ourselves not only on our robust feature set, but our granular integrated, value-added convergence and easy configuration 
 ![alt](https://via.placeholder.com/90x90.png)
 
 ## Real Estate
+We will revalue our aptitude to evolve without decreasing our power to aggregate.
 ![alt](https://via.placeholder.com/90x90.png)
 
 ## Medical
+A company that can streamline elegantly will (at some undefined point of time in the future) be able to transition easily.
 ![alt](https://via.placeholder.com/90x90.png)
 
 ## Agriculture
+Our functionality is unparalleled, but our non-complex administration and newbie-proof use.
 ![alt](https://via.placeholder.com/90x90.png)
 
 
 
 ## RECENT PROJECTS
 
-### Bangor, MA
+### Bangor, MA - 30,000 Sqft
 ![alt](https://via.placeholder.com/220x220.png)
-30,000 Sqft
+Aa virally-distributed plan of action for managing partnerships.
 
-
-### Bangor, MA
+### Bangor, MA - 16,000 sqft
 ![alt](https://via.placeholder.com/220x220.png)
-16,000 sqft
+Our infinitely reconfigurable feature set is unparalleled.
 
+### Bangor, MA - 10,000 sqft
+A robust feature set. C2C2C paradigms and easy configuration.
 
-### Bangor, MA
 ![alt](https://via.placeholder.com/220x220.png)
-10,000 sqft
 
+### Bangor, MA - 80,000 sqft
+We believe we know that it is better to engineer virtually.
 
-### Bangor, MA
 ![alt](https://via.placeholder.com/220x220.png)
-80,000 sqft
 
+### Nome, AK - 75,000 sqft
+The buzzword 'technologies' really mean? Think granular.
 
-### Nome, AK
 ![alt](https://via.placeholder.com/220x220.png)
-75,000 sqft
 
+### Bangor, MA - 80,000 sqft
+User-centric TQM and non-complex configuration.
 
-### Bangor, MA
 ![alt](https://via.placeholder.com/220x220.png)
-80,000 sqft
 
 
 # VIDEOS
