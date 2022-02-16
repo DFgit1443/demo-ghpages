@@ -1,6 +1,6 @@
 ![alt](https://via.placeholder.com/1920x1080.png)	
 
-# ourselves not only on our robust feature set, but our granular integrated, value-added convergence and easy configuration 
+# At INVEST BRIUHEM - we not only have a robust feature set, but are granular integrated, value-added convergence and easy configure. 
 
 
 ## Manufacturing & Ecommerce
@@ -22,8 +22,8 @@ A company that can streamline elegantly will (at some undefined point of time in
 Our functionality is unparalleled, but our non-complex administration and newbie-proof use.
 
 ![alt](https://via.placeholder.com/90x90.png)
-
 ---
+
 
 ## RECENT PROJECTS
 
@@ -56,8 +56,8 @@ The buzzword 'technologies' really mean? Think granular.
 User-centric TQM and non-complex configuration.
 
 ![alt](https://via.placeholder.com/220x220.png)
-
 ---
+
 
 # VIDEOS
 
